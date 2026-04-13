@@ -1,4 +1,4 @@
-1. # Портфолио Козлов К. К.
+# Портфолио Козлов К. К.
 Тел.: +7 987 332-71-50 | Email: klim.kozlov.05@gmail.com | Telegram: @causelovvkk
 ---
 
